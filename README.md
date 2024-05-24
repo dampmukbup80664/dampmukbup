@@ -1,1 +1,1 @@
-The Prodigy's album "The Fat of the Land" (1997) popularized the big beat genre and featured hit singles like "Firestarter" and "Breathe."
+The Backstreet Boys's self-titled debut album (1996) launched the boy band craze of the late 1990s, featuring hits like "Quit Playing Games (with My Heart)" and "Everybody (Backstreet's Back)."
