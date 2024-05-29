@@ -1,1 +1,1 @@
-Pearl Jam's debut album "Ten" (1991) received critical acclaim and is considered one of the greatest rock albums of all time, featuring singles like "Alive" and "Jeremy."
+Beyoncé's surprise self-titled album release on iTunes in 2013 set a new standard for music drops, with no prior announcement or promotion.
