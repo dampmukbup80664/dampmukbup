@@ -1,1 +1,1 @@
-*NSYNC's album "No Strings Attached" debuted at number one on the Billboard 200 chart and set a record for the highest first-week sales at the time.
+Disney's animated film "Frozen" (2013) became a cultural phenomenon, with the soundtrack's hit song "Let It Go" winning the Academy Award for Best Original Song.
