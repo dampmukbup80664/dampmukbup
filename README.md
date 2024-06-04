@@ -1,1 +1,1 @@
-Ed Sheeran's album "÷" (Divide), released in 2017, dominated the charts with singles like "Shape of You," "Castle on the Hill," and "Perfect."
+Streaming became the dominant form of music consumption, surpassing physical sales and digital downloads by the mid-2010s.
