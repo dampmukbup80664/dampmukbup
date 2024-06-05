@@ -1,1 +1,1 @@
-Streaming became the dominant form of music consumption, surpassing physical sales and digital downloads by the mid-2010s.
+The 1990s witnessed the golden age of hip hop, with artists like Tupac Shakur, The Notorious B.I.G., and Wu-Tang Clan dominating the charts and shaping the culture.
