@@ -1,1 +1,1 @@
-Eminem's album "The Marshall Mathers LP" was released in May 2000 and became the fastest-selling solo album in US history, propelled by hits like "The Real Slim Shady" and "Stan."
+Luis Fonsi and Daddy Yankee's song "Despacito" (2017) became the most-streamed song of all time, reaching over 6.5 billion streams across various platforms.
