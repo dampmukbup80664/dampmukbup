@@ -1,1 +1,1 @@
-Luis Fonsi and Daddy Yankee's song "Despacito" (2017) became the most-streamed song of all time, reaching over 6.5 billion streams across various platforms.
+BTS, the South Korean boy band, achieved global success in the 2010s, becoming the best-selling artist in South Korea's history and gaining a massive international fanbase.
