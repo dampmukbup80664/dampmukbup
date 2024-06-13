@@ -1,1 +1,1 @@
-Faith Hill's "Breathe" won the Grammy Award for Best Country Album, and the title track won Best Female Country Vocal Performance and Best Country Song.
+The Spice Girls's debut single "Wannabe" (1996) became a global phenomenon, sparking the "Girl Power" movement and cementing their status as pop icons.
