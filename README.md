@@ -1,1 +1,1 @@
-The Spice Girls's debut single "Wannabe" (1996) became a global phenomenon, sparking the "Girl Power" movement and cementing their status as pop icons.
+Drake's album "Views" (2016) spent multiple weeks at number one on the Billboard 200 chart and featured hits like "Hotline Bling" and "One Dance."
