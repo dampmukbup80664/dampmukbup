@@ -1,1 +1,1 @@
-Drake's album "Views" (2016) spent multiple weeks at number one on the Billboard 200 chart and featured hits like "Hotline Bling" and "One Dance."
+Christina Aguilera released her self-titled debut album in 1999, but its success continued into 2000 with hit singles like "What a Girl Wants" and "Come On Over Baby (All I Want Is You)."
