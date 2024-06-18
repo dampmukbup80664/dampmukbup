@@ -1,1 +1,1 @@
-Nirvana's "Nevermind" (1991) popularized the grunge sound and became an anthem for Generation X, featuring hits like "Smells Like Teen Spirit."
+Latin music experienced a surge in popularity in the 1990s, with artists like Ricky Martin, Shakira, and Selena crossing over to the mainstream market.
