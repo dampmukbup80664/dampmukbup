@@ -1,1 +1,1 @@
-The 1990s witnessed the golden age of hip hop, with artists like Tupac Shakur, The Notorious B.I.G., and Wu-Tang Clan dominating the charts and shaping the culture.
+Alternative rock bands like Radiohead, Oasis, and Beck gained prominence in the 1990s, offering diverse sounds and pushing musical boundaries.
