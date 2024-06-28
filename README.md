@@ -1,1 +1,1 @@
-The soundtrack for the film "A Star is Born" (2018), starring Lady Gaga and Bradley Cooper, received critical acclaim and commercial success, featuring hits like "Shallow" and "Always Remember Us This Way."
+The 43rd Annual Grammy Awards took place in 2001, honoring artists like U2, Santana, and Eminem, who won Album of the Year for "The Marshall Mathers LP."
