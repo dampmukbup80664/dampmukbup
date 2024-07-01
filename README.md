@@ -1,1 +1,1 @@
-The 43rd Annual Grammy Awards took place in 2001, honoring artists like U2, Santana, and Eminem, who won Album of the Year for "The Marshall Mathers LP."
+The Notorious B.I.G.'s debut album "Ready to Die" (1994) established him as one of the greatest rappers of all time, featuring tracks like "Juicy" and "Big Poppa."
