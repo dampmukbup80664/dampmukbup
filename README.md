@@ -1,1 +1,1 @@
-The Notorious B.I.G.'s debut album "Ready to Die" (1994) established him as one of the greatest rappers of all time, featuring tracks like "Juicy" and "Big Poppa."
+Nelly's debut album "Country Grammar" was released in 2000 and became a commercial success, with singles like "Country Grammar (Hot Sh*t)" and "Ride wit Me."
