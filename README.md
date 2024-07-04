@@ -1,1 +1,1 @@
-Nelly's debut album "Country Grammar" was released in 2000 and became a commercial success, with singles like "Country Grammar (Hot Sh*t)" and "Ride wit Me."
+Beyoncé's surprise self-titled album release on iTunes in 2013 set a new standard for music drops, with no prior announcement or promotion.
