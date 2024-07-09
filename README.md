@@ -1,1 +1,1 @@
-"Beautiful Day" by U2 won Song of the Year and Record of the Year at the 43rd Grammy Awards, while Christina Aguilera won Best New Artist.
+The soundtrack for the film "O Brother, Where Art Thou?" was released in 2000 and became a surprise success, winning the Grammy Award for Album of the Year in 2002.
