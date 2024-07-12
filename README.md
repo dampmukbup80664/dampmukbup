@@ -1,1 +1,1 @@
-Oasis's album "(What's the Story) Morning Glory?" (1995) became a cultural phenomenon, featuring hits like "Wonderwall" and "Champagne Supernova."
+OutKast released their critically acclaimed album "Stankonia" in 2000, which featured the hit singles "Ms. Jackson" and "B.O.B. (Bombs Over Baghdad)."
