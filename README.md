@@ -1,1 +1,1 @@
-OutKast released their critically acclaimed album "Stankonia" in 2000, which featured the hit singles "Ms. Jackson" and "B.O.B. (Bombs Over Baghdad)."
+The Prodigy's album "The Fat of the Land" (1997) popularized the big beat genre and featured hit singles like "Firestarter" and "Breathe."
