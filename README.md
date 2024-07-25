@@ -1,1 +1,1 @@
-Disney's animated film "Frozen" (2013) became a cultural phenomenon, with the soundtrack's hit song "Let It Go" winning the Academy Award for Best Original Song.
+Backstreet Boys released their album "Black & Blue" in 2000, featuring singles like "Shape of My Heart" and "The Call."
