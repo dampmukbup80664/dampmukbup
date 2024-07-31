@@ -1,1 +1,1 @@
-Despite the challenges posed by piracy, the music industry saw the emergence of legal digital music platforms like Apple's iTunes Store, which launched in 2001.
+Taylor Swift's transition from country to pop music was solidified with the release of her album "1989" in 2014, featuring chart-toppers like "Shake It Off" and "Blank Space."
